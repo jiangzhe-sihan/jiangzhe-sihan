@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Japanese, finance, animate or sth.
 - 💞️ I’m looking to collaborate on 優しい人、愛しい人
 - 📫 How to reach me
-    - LINE jiangzhesihan
+    - LINE 51672178
     - Gmail dava0086@gmail.com
 
 <!---
